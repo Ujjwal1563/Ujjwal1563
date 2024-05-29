@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Ujjwal1563](https://github.com/Ujjwal1563)
 
-- 📫 How to reach me **ujjwal15062003@gmail.com**
+- 📫 How to reach me **ujjwal.shar.ma1563@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
